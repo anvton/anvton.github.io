@@ -17,7 +17,7 @@ Since finishing third-year of medical school and begining my research year, I've
 <br /><br /><b>Materials</b>
 <ul><li>Some sticks of celery</li>
 <li>1 red onion</li>
-<li>2 pobano peppers</li>
+<li>2 poblano peppers</li>
 <li>28oz canned tomatoes</li>
 <li>2 16oz cans black beans, 1 can kidney beans, 1 can pinto beans</li>
 <li>Some frozen corn kernels</li>
@@ -28,7 +28,7 @@ Since finishing third-year of medical school and begining my research year, I've
 <li>Toppings: cilantro, green onion, cheddar cheese (shredded), avocado, greek yogurt/sour cream</li>
 </ul>
 <br /><br /><b>Methods</b>
-<br />1. Roast pobalano peppers whole in broiler 5 minutes turning often until black and blistered and peel skin.
+<br />1. Roast poblano peppers whole in broiler 5 minutes turning often until black and blistered and peel skin.
 <br />2. Chop chiles, celery, and onions.
 <br />3. Put some olive oil in a dutch oven and cook chiles in oil on medium-high heat until it changes color (usually orange) stiring often.
 <br />4. Add chopped veggies and cook until onions clear about 5 minutes. Add spices and garlic.
@@ -36,7 +36,7 @@ Since finishing third-year of medical school and begining my research year, I've
 <br />6. Bring to a boil, then down to a simmer. Cook 30 minutes stirring occasionally.
 <br />7. Mash chile with potato masher until you like the consistency.
 <br />8. Add flavoring things to taste (except garlic).
-<br />9. Take off heat and serve with toppings as desired.
+<br />9. Take off heat and serve with toppings as desired. We usually also make a corn bread to go with this :)
 
 
 
