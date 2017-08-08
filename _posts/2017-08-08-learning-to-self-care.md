@@ -27,7 +27,7 @@ Since finishing third-year of medical school and begining my research year, I've
 <li>Other flavoring things: soy sauce, worcestershire sauce, bourbon, lime juice, garlic</li>
 <li>Toppings: cilantro, green onion, cheddar cheese (shredded), avocado, greek yogurt/sour cream</li>
 </ul>
-<br /><br /><b>Methods</b>
+<b>Methods</b>
 <br />1. Roast poblano peppers whole in broiler 5 minutes turning often until black and blistered and peel skin.
 <br />2. Chop chiles, celery, and onions.
 <br />3. Put some olive oil in a dutch oven and cook chiles in oil on medium-high heat until it changes color (usually orange) stiring often.
