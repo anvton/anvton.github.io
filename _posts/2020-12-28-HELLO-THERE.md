@@ -4,7 +4,7 @@
  date: 2020-12-28
  ---
 
- HELLO!!!!! It has been over TWO YEARS since my last post here and SO much has changed more so than I imagined. Thanks for reminding me that this website exists, Jenn (please visit her website <a href="http://butter.city" target="_blank">here</a> although the only person that may see this link may be jenn herself XD).
+ HELLO!!!!! It has been over TWO YEARS since my last post here and SO much has changed more so than I imagined. Thanks for reminding me that this website exists, Jenn (please visit her website <a href="http://butter.city" target="_blank">here</a> although the only person that may see this link may be jenn herself XD). uh.. earlier this year, my domain was hacked and the name servers posted to a scammmy website (which I promptly fixed), so my website had been blocked by google for a lot of this year.... and i finally fixed it!
 
  <br />first of all. i am now living in new york city. holy what! how did that happen. it still feels unreal now, but maybe it's because the reputation of new york city still seems to be more than how i experience it. which is lying semi-horizontally head-propped-up on my couch for many hours a day interspersed with "work" and lying completely horizontally on my bed. what a worldly, cosmopolitian experience!!
 
