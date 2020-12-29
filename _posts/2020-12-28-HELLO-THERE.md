@@ -1,8 +1,4 @@
----
- layout: post
- title: "HELLO THERE"
- date: 2020-12-28
- ---
+
 
  HELLO!!!!! It has been over TWO YEARS since my last post here and SO much has changed more so than I imagined. Thanks for reminding me that this website exists, Jenn (please visit her website <a href="http://butter.city" target="_blank">here</a> although the only person that may see this link may be jenn herself XD). uh.. earlier this year, my domain was hacked and the name servers posted to a scammmy website (which I promptly fixed), so my website had been blocked by google for a lot of this year.... and i finally fixed it!
 
